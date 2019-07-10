@@ -1,1 +1,1 @@
-https://modest-mahavira-7a57c9.netlify.com
+https://friendly-ritchie-49fd49.netlify.com
